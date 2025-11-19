@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌟 Utsab Biswal — passionate about tech & innovation<br>🔍 Love analyzing, exploring, and understanding how things work<br>🧠 Focused on continuous learning & self-improvement<br>💼 Enjoy working on small projects and experimenting with new tools<br>🌱 Believe in consistency and growth<br>✨ Fun fact: I lose track of time when I’m researching something interesting — deep-dives are my thing!
+🌟 Utsab Biswal — passionate about tech & innovation<br>🔍 Love analyzing, exploring, and understanding how things work<br>🧠 Focused on continuous learning & self-improvement<br>💼 Enjoy working on small projects and experimenting with new tools<br>🌱 Believe in consistency and growth<br>✨ Fun fact: I lose track of time when I’m researching something interesting — deep-dives are my things!
 
 
 ## 🌐 Socials:
